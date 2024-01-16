@@ -9,3 +9,6 @@ Gazirana45/Gazirana45 is a ✨ special ✨ repository because its `README.md` (t
 You can click the Preview link to take a look at your chang
 https://www.facebook.com/gazirana01
 https://www.facebook.com/gazirana45
+https://exbet66.com/index.html?code=4055755
+https://mostplay.online/?refcode=FyKFlY
+www.bajilive.com?refcode=Ge0nm9
